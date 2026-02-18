@@ -4,9 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=86282c&label=Thieves)
 
-<sup> Give into temptation! </sup>
-
-<div align="center">
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=14&pause=470&color=B32222&center=true&width=435&lines=I+never+lied+about+the+times+that+I+felt+free%2C;from+the+outside+everything+seemed+so+easy.;Yet+I+can't+help+but+worry%2C+I've+been+here+before.;I+thought+I'd+close+the+door%2C+but+here+you+are.;It's+in+my+blood%2C+it's+in+my+heart%2C;been+in+my+veins+right+from+the+start.;Don't+know+I+had+a+fear+of+the+unknown%2C;until+I+start+to+lose+control.;It's+been+so+hard+to+keep+this+up%2C;been+travelling+far+to+fill+my+cup.;Don't+know+I+had+a+fear+of+the+unknown%2C;until+I+start+to+lose+control.)](https://git.io/typing-svg)
 
 <sup> [**ATABOOK**](https://tvworld.atabook.org) ⋆ [**STRAWPAGE**](https://akeeshu.straw.page) ⋆ [**RENTRY**](https://rentry.co/artesto) ⋆ [**PRONOUNS.CC**](https://pronouns.cc/@artesto)</sup>
 
