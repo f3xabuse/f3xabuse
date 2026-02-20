@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/xqhsj7.png" width="230px">
+<img src="https://files.catbox.moe/xudf23.png" width="230px">
 
 ![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=86282c&label=Thieves)
 
