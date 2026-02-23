@@ -1,13 +1,22 @@
 <div align="center">
+  
+<sup> ___special mentions!___ </sup>
 
-<img src="https://cdn.imgchest.com/files/20b8f85efa39.png" width="360px">
+<sup> [Artful ♡](https://github.com/orchestrafuI)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Shane ♡](https://f3xabus3rr.straw.page)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Doom](https://github.com/dummyinbed)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Dice](https://github.com/SpaceKn1ghts)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Soldier](https://github.com/iTrapped2012)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Noah](https://github.com/IHASAFACE-LULZ)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Wumble](https://github.com/tirgery123) </sup>
 
-![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=86282c&label=Thieves)
+━━━━━━══════════════════════════════════⊱⋆⊰═════════════════════════════════━━━━━━
+<div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=14&pause=470&color=B32222&center=true&width=435&lines=I+never+lied+about+the+times+that+I+felt+free%2C;from+the+outside+everything+seemed+so+easy.;Yet+I+can't+help+but+worry%2C+I've+been+here+before.;I+thought+I'd+close+the+door%2C+but+here+you+are.;It's+in+my+blood%2C+it's+in+my+heart%2C;been+in+my+veins+right+from+the+start.;Don't+know+I+had+a+fear+of+the+unknown%2C;until+I+start+to+lose+control.;It's+been+so+hard+to+keep+this+up%2C;been+travelling+far+to+fill+my+cup.;Don't+know+I+had+a+fear+of+the+unknown%2C;until+I+start+to+lose+control.)](https://git.io/typing-svg)
+<img src="https://cdn.imgchest.com/files/40558c94b91d.png" width="360px">
+
+![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=f2a400&label=canon_events)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Courier+Prime&weight=800&size=13&pause=1000&color=F2A400&center=true&width=435&lines=Intuition+and+the+subconscious+mind+are+powerful+things%2C;+when+harnessed+the+right+way.;As+for+why+I+don't+tell+you...;Why+not+just+let+her+tell+you%3F;You're+the+one+with+the+damn+crush+on+her.)](https://git.io/typing-svg)
 
 <sup> [**ATABOOK**](https://tvworld.atabook.org) ⋆ [**STRAWPAGE**](https://akeeshu.straw.page) ⋆ [**RENTRY**](https://rentry.co/artesto) ⋆ [**PRONOUNS.CC**](https://pronouns.cc/@artesto)</sup>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=f2n6prthunxkl481yp07tfdlz&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=992d1a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <sup> Hi! Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers or atabook! :-) </sup>
+
+━━━━━━══════════════════════════════════⊱⋆⊰═════════════════════════════════━━━━━━
