@@ -2,18 +2,20 @@
 
 <img src="https://cdn.imgchest.com/files/28839928a43b.webp" width="40px">
   
-<sup> ___special mentions!___ </sup>
+<sup> ___Special mentions.___ </sup>
 
-<sup> [Artful ♡](https://github.com/orchestrafuI)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Shane ♡](https://f3xabus3rr.straw.page)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Doom](https://github.com/dummyinbed)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Dice](https://github.com/SpaceKn1ghts)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Soldier](https://github.com/iTrapped2012)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Noah](https://github.com/IHASAFACE-LULZ)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Wumble](https://github.com/tirgery123) </sup>
+<sup> [Compass/Jake. ♡](https://github.com/orchestrafuI)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Shane/John. ♡](https://f3xabus3rr.straw.page)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Doom.](https://github.com/dummyinbed)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Dice.](https://github.com/SpaceKn1ghts)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Soldier.](https://github.com/iTrapped2012) ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [My children. (unlisted)](https://github.com/f3xabuse) </sup>
 
-━━━━━══════════════════════════════════⊱⋆⊰═════════════════════════════════━━━━━
+<sup> Want to be added? Ask, I might decline politely if we don't know each other well. Don't take it personally, I love \*all\* my friends dearly. </sup>
+
+━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
 <div align="center">
 
-<img src="https://cdn.imgchest.com/files/40558c94b91d.png" width="360px">
+<img src="https://cdn.imgchest.com/files/b28f051fe1f1.png" width="280px">
 
-![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=f2a400&label=canon_events)
+![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=f2a400&label=SPLIT)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Courier+Prime&weight=800&size=13&pause=1000&color=F2A400&center=true&width=435&lines=Intuition+and+the+subconscious+mind+are+powerful+things%2C;+when+harnessed+the+right+way.;As+for+why+I+don't+tell+you...;Why+not+just+let+her+tell+you%3F;You're+the+one+with+the+damn+crush+on+her.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Courier+Prime&size=12&duration=3400&pause=600&color=F2A400&center=true&width=435&height=20&lines=Tell+me+something.;Tell+me+anything%2C+just+say+my;Name+is+stumbling.;Words+are+caught%2C+like+flies+and+leapers%2C;I+know+something.;My+best+friend's+name+is+The+Reaper.;Take+it+from+him%2C;All+he+says%2C+he+always+lingers.;Better+off%2C+I'm+dead+now%2C+get+it+off+my+chest+now.;Every+step+I+take%2C+another+way+to+lay+to+rest.;+How+bitter+of+me+lately%2C+I+just+wish+he'd+take+me.;Summer's+always+awful%2C+winter+is+the+one+that+breaks+me;Down%2C;Down%2C+down%2C+down.;(And+I+know+I+will+stay.);Down.+Down%2C+down%2C+down.;(And+I+know+I+will+break.);+)](https://git.io/typing-svg)
 
 <sup> [**ATABOOK**](https://tvworld.atabook.org) ⋆ [**STRAWPAGE**](https://akeeshu.straw.page) ⋆ [**RENTRY**](https://rentry.co/artesto) ⋆ [**PRONOUNS.CC**](https://pronouns.cc/@artesto)</sup>
 
@@ -21,4 +23,4 @@
 
 <sup> I am thinking of opening Pony commissions. Let me know if you are interested. I also make MC skins, though I think I am not very good at it. </sup>
 
-━━━━━══════════════════════════════════⊱⋆⊰═════════════════════════════════━━━━━
+━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
