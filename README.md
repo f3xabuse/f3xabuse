@@ -23,7 +23,7 @@
 
 <sup> [**ATABOOK**](https://dirkpool.atabook.org) ⋆ [**STRAWPAGE**](https://artesto.straw.page) ⋆ [**RENTRY**](https://rentry.co/artesto) ⋆ [**PRONOUNS**](https://pronouns.cc/@artesto)</sup>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=f2n6prthunxkl481yp07tfdlz&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=992d1a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=f2n6prthunxkl481yp07tfdlz&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=f2a400&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <sup> I am thinking of opening Pony commissions. Let me know if you are interested. I also make MC skins, though I think I am not very good at it. </sup>
 
